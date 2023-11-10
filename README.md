@@ -1,4 +1,4 @@
-![image](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcutshort.io%2Fblog%2Fcareer-advice%2Ffull-stack-development-become-full-stack-developer&psig=AOvVaw2HkkgcGYaS5ULpA9eORMZ1&ust=1699719554009000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCKCrjvTquYIDFQAAAAAdAAAAABAF).
+![image](https://cutshort.io/blog/wp-content/uploads/2018/04/bd1e5c2457278a37313c55ce8c887aa3.jpg).
 ![image](https://github.com/vishal2212g/Vishal-Kumar/assets/128646914/cc5f80f2-e41a-4754-9a12-a1461a308883)
 
 
